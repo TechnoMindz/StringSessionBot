@@ -1,4 +1,4 @@
-# <h2 align="centre"><i><b>💖TECHNO MINDZ BOT💝</i></b></h2>
+# <h2 align="centre"><i><b>💖TECHNO MINDZ BOT 6💝</i></b></h2>
 
 # String Session BOT FOR ALL MY TECHNOMINDZ SUBSCRIBERS
 
